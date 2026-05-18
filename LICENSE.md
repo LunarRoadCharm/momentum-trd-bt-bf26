@@ -1,4 +1,4 @@
-# 
+# premium ftx trading bot scripts is the best ftx trading bot scripts with low-frequency and cross-margin. Safe, reliable, and optimized for CEX, DEX, and algorithmic trading
 
 
 
